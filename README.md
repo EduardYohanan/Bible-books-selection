@@ -16,3 +16,4 @@
 Because people need to read their Bible. The greatest need of a sinful man (regardless of nationality, reputation, status) is to obtain the forgiveness of sins, and that is just possible through the precious Blood of the Divine Lamb, the Person and His work on the Cross. I have created this by the Grace of the Lord. Though it's not complex, The Lord helped me, and I want others to be edified and benefit from it. May the Lord Christ bless you, dear ones!
 
     A small note: The code it's written in my native language, though if needed I can make changes. Basically the books of the Bible are in total 66 (Genesis - Apocalypse). 
+    Added the English version✔️
