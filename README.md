@@ -13,6 +13,6 @@
     4. Repeta daca e nevoie.
     
 # Why this?
-Because people need to read their Bible. The greatest need of a sinful man (regardless of nationality, reputation, status) is to obtain the forgiveness of sins, and that is just possible through the precious Blood of the Divine Lamb, the Person and His work on the Cross. I have created this by the Grace of the Lord. Though it's not complex, The Lord helped me, and I want others to be edified and benefit from it. May the Lord Christ bless you, dear ones!
+Because people need to read their Bible. The greatest need of a sinful man (regardless of nationality, reputation, status) is to obtain the forgiveness of sins, and that is just possible through the precious blood of the Divine Lamb, the Person and His work on the Cross. I have created this by the Grace of the Lord. Though it's not complex, The Lord helped me, and I want others to be edified and benefit from it. May the Lord Christ bless you, dear ones!
 
     Added the English version✔️
